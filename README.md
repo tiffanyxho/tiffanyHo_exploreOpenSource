@@ -3,3 +3,5 @@ This project is part of the Explore Open Source Challenge through Girls Who Code
 
 Tiffany
 * Delilah could include more photos reflective/representative of her target audience. She can also start out by replacing a photo or two with young girls from a variety of backgrounds in the case that adding extra/more photos is too much for a start. In the future, Delilah can keep in mind who her target audience is and can make sure that any content she adds does so.
+
+I agree! -Aditi
